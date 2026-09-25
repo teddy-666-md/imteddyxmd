@@ -1,2 +1,0 @@
-# imteddyxmd
-Uploaded using Teddyxcloud
